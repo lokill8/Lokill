@@ -1,0 +1,2 @@
+# Lokill
+Propiedad intelectual
